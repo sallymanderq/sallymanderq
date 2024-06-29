@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sallymanderq
-- 👀 I’m interested in ...
+- 👀 I’m interested in empowering folx to reimagine their world in constructive ways
 - 🌱 I’m currently learning html 
 - 💞️ I’m looking to collaborate on ANYTHING ~ I'm still a bb coder so I like seeing anythign and everything
 - 📫 How to reach me @ee_ehd on discord
